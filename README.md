@@ -1,0 +1,1 @@
+# safelink.smksk.sch.id
